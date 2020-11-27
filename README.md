@@ -25,6 +25,10 @@ $19 down from $65, free shipping
 
 ## Tools
 
+OutThink cyber security awareness trainig / human risk management platform (SaaS) :see_no_evil:\
+https://outthink.io/contact/
+30% discount with code: HRP30 until 30.11.2020
+
 GRAYHATWARFARE (Cloud Storage Buckets Search Engine) :see_no_evil:\
 https://buckets.grayhatwarfare.com/packages  
 Up to 50% off
@@ -243,6 +247,10 @@ $19 down from $65, free shipping
 
 ## Software:
 
+OutThink cyber security awareness trainig / human risk management platform (SaaS) :see_no_evil:\
+https://outthink.io/contact/
+30% discount with code: HRP30 until 30.11.2020
+
 Acrylic WiFi Hacking Suite\
 https://www.acrylicwifi.com/  
 30% discount with code: BLACKFRIDAY
@@ -310,6 +318,10 @@ https://www.southord.com/
 15% off with coupon HOLLY19
 
 ## Courses & Training:
+
+OutThink cyber security awareness trainig / human risk management platform (SaaS) :see_no_evil:\
+https://outthink.io/contact/
+30% discount with code: HRP30 until 30.11.2020
 
 Applied Network Defense Online Training\
 https://networkdefense.io/ \
